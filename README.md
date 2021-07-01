@@ -1,4 +1,4 @@
-I fear heights, but I'm tall. Thanks, satan
+Chillin
 <!---
 DistantJragon/DistantJragon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
